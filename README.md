@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @pengKiina
+- 👋 Hi, I’m @pengKiina working in Lapland as marketing expert and tour guide. 
 - 👀 I’m interested in content marketing. 
 - 🌱 I’m currently doing PhD at University of Eastern Finland. 
 - 💞️ I’m looking to collaborate on content marketing, especially in tourism business. 
