@@ -2,7 +2,7 @@
 - 👀 I’m interested in content marketing. 
 - 🌱 I’m currently doing PhD at University of Eastern Finland. 
 - 💞️ I’m looking to collaborate on content marketing, especially in tourism business. 
-- 📫 How to reach me: pengyang@uef.fi
+- 📫 How to reach me: peng.yang@uef.fi
 
 <!---
 pengKiina/pengKiina is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
